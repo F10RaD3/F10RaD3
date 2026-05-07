@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to colloborate on going into Cybersecurity as a complete beginner and maneuvering through this multiverse.
 - 🤔 I’m looking for help with direction through my goals into becoming a cybersecurity master.
 - ⚡ Fun fact: *I have two sides of interest:- tech and creativity.*
-😜
+🥰
