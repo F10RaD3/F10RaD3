@@ -1,6 +1,6 @@
 # About Me
 
-**Floyd-Ann/floyd-ann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**F10RaD3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
